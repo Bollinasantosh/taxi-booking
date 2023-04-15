@@ -22,16 +22,3 @@ cb xbc xbn zxB
  cdscnas csa'
  c
 bca sbcd bcd ac
-casdcbasndcbasd
-csancb ansc
-vc vbcvcvcvbv'vvv
-bvbvv
-bvbv
-cbxncbncbndcbndbcn
-ndsbndbfcnbfcDSN
-cbdvcbdsvsb cds cdcbansbcsbjs
- xnxa cna na bcnas
- xns XMSmZ s kl;ws
- sdqiqkqw
- jsqw]
- dfjkkljklj
